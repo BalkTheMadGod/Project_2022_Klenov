@@ -1,1 +1,1 @@
-https://www.figma.com/file/x74rbACiMqLmp21fwFVaog/6-7lab?node-id=0%3A1&t=M3y2VDe27XTq90yB-1
+https://drive.google.com/file/d/1n55fRPKPYcp_QEydGUvxwFfCaI282eQn/view?usp=sharing
